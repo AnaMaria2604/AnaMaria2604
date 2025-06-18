@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 🎀 About Me:
 I am a creative individual with a strong desire for continuous learning and the ability to quickly adapt and absorb new information. My calm demeanor and team-oriented mindset allow me to contribute significantly to task coordination and improve overall project organization.
 
 
